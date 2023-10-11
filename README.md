@@ -1,4 +1,4 @@
-👨🏻‍🍳 Hi there I'm Iñaki Borrego  👨🏻‍🍳
+👨🏻‍🍳  Hi, I’m Iñaki Borrego Bau  👨🏻‍🍳
 
 <br>
 <br>
